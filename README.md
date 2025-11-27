@@ -1,2 +1,0 @@
-# Shiva-Resume
-School Purposes 
